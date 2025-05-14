@@ -32,5 +32,5 @@
 
 ---
 
-> “Time slips like sand through my fingers—quiet, merciless. The things I could not become haunt me like whispers in the dark, proof of an inner decay. One day, I ceased to resist. I walked into the darkness—not as a surrender, but as the only freedom ever allowed to me.”  
+> “My heart isn’t broken—it simply chose to stop mending. Like a weary violin, it sighs in silence. Everyone remembers my name, yet no one remembers the one I once tried to become. I am not forgiving—I am just tired of fighting. But you never let me rest. You only made the pain grow louder.”  
 > — Ilmar  
