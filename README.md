@@ -2,7 +2,7 @@
 **IlmarSvante2/IlmarSvante2** is a ✨ _special_ ✨ repository because its `README.md` appears on your GitHub profile.
 -->
 
-# 👋 Hi, my name is 
+# 👋 "My name is Lewan but you can call me Li"
 
 - 👀 **Interests**  
   - Philosophy  
